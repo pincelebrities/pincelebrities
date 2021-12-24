@@ -1,0 +1,11 @@
+https://lancarbayar.blogspot.com
+https://lapakrecehan.blogspot.com
+https://aridjayaadsterra.blogspot.com
+https://aridjayakeeper.blogspot.com
+https://clickbody.blogspot.com
+https://lanjutinyuk.blogspot.com
+https://lewatinsay.blogspot.com
+https://loadingsay.blogspot.com
+https://aridjayamgid.blogspot.com
+https://lanjutplay.blogspot.com
+https://teruslanjutin.blogspot.com
